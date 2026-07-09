@@ -1,5 +1,3 @@
-we could be airplanes in the nightsky or soemthing
+bro PLEASE I JUST WANT DARK CACAOS COSTUME
 
-povi go AWAY
-
-![ok](https://cdn.discordapp.com/attachments/1257963356028010608/1524582298287083712/IMG_8997.png?ex=6a504569&is=6a4ef3e9&hm=b265a5e8db7d84418964f914df2dde54eadfc933d0c8a084c719ec1bce377a52&)
+![ok](https://cdn.discordapp.com/attachments/1449827300345384960/1524898021588861070/IMG_9005.png?ex=6a516b73&is=6a5019f3&hm=cbdd06c758cd11739b4ae5d3f69eb6cd19bd7bfbd501391c701351672c7cec12&)
