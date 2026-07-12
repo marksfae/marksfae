@@ -1,3 +1,9 @@
-bro PLEASE I JUST WANT DARK CACAOS COSTUME
+hai ahmmmm
 
-![ok](https://cdn.discordapp.com/attachments/1449827300345384960/1524898021588861070/IMG_9005.png?ex=6a516b73&is=6a5019f3&hm=cbdd06c758cd11739b4ae5d3f69eb6cd19bd7bfbd501391c701351672c7cec12&)
+so im a really REALLY big fan of fae and ananas + the other dragons but mostly just these two. probably a yume idk i never really thought about that
+
+dni: basic dni criteria mainly, people who FORCE their headcanons/ships onto another
+
+i go by a lot of names but call me mark or sage! im a he/they, anyone using femine terms on ME will be ignored
+
+the day people stop saying that shami killed fae is the day that i actually get lucky in gachas. did shami play a PART in making fae sacrifice his lifepowder? YES. did shami DIRECTLY "kill" him? NO. 
